@@ -1,5 +1,5 @@
 # FnafRpgGame
 
-#Download it ig :shrug:
+Download it ig :shrug:
 
-#dont distribute :angry:
+dont distribute :angry:
